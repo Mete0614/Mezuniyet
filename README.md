@@ -1,2 +1,3 @@
 # Mezuniyet
-jıewrjffıo3kfoerrfı
+Enerji kaynakları ile ilgili proje
+
